@@ -7,5 +7,3 @@
 hi there!
 
 im kashyap and i like to code :p
-
-twice & bts <3
